@@ -1,4 +1,0 @@
-# fastapiprac
-# fastapiprac
-# fastapiprac
-# fastapiprac
